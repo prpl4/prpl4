@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @prpl4
+- 👀 I’m interested in ... interesting things!
+- 🌱 I’m currently learning ... how to rule the planet - a la pinky and the brain     
+- 💞️ I’m looking to collaborate on ... not on ruling the planet (duh) but on being my minions maybe
+- 📫 How to reach me ... here? Here.
